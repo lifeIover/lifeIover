@@ -11,7 +11,7 @@
 <div align="center">
 
 
-#1 fan of xavleg, code orange, life lover & mayhem
+#1 fan of code orange, life lover & mayhem
 
 [rentry](https://rentry.co/varg)　+　[rentry 2](https://rentry.co/xavleg) [rblx](https://www.roblox.com/users/5809349077/profile)　[fm](https://last.fm/user/parfalt)
 
