@@ -1,9 +1,9 @@
 &nbsp;
 <div align="center">
  
-![](https://komarev.com/ghpvc/?username=femIock&style=plastic&color=000000&label=_　🦴　　&base=1520710)
+![](https://komarev.com/ghpvc/?username=femIock&style=plastic&color=fc747d&label=_　🦴　　&base=1520710)
 
-<img src="https://i.postimg.cc/8zq0jGbN/Untitled120-20260828180209.png" alt="Preview" width="600">
+<img src="https://i.postimg.cc/8zq0jGbN/Untitled120-20260828180209.png" alt="Preview" width="800">
 
 </p> 
 
@@ -11,7 +11,7 @@
 <div align="center">
 
 
-#1 fan of kmfdm & carl gallagher, [rblx](https://www.roblox.com/users/5809349077/profile) [fm](https://last.fm/user/parfalt) | riako [1](https://wakeupdonnie.fandom.com/wiki/Donnie_Darko) & [2](https://shameless.fandom.com/wiki/Carl_Gallagher_(US))
+#1 fan of kmfdm & shalom, [rblx](https://www.roblox.com/users/5809349077/profile) [fm](https://last.fm/user/parfalt) | riako [1](https://path-to-nowhere.fandom.com/wiki/Shalom) & [2](https://shameless.fandom.com/wiki/Carl_Gallagher_(US))
 
 <img src="https://i.postimg.cc/DZYf13fm/IMG-2566.gif" alt="Preview" width="300">
 
